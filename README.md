@@ -8,7 +8,7 @@
 
 **College State –** Uttar Pradesh
 
-**Internship Domain –** Data Analytics ( 12. June. 2023 to 10. July.2023)
+**Internship Domain –** Data Analytics ( 12. June. 2023 to 24. July.2023)
 
  
 
